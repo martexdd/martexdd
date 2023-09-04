@@ -25,7 +25,7 @@ Nossos discord:
 ![github-compressor](https://github.com/martexdd/martexdd/assets/143229353/8ec471b3-8784-4ffa-8430-b7536dfb4926)
 
 
-[68747470733a2f2f6d69726f2e6d656469756d2e636f6d2f6d61782f313630302f312a58375138346e6b514e3144694658432d72514c7439672e676966](https://github.com/martexdd/martexdd/assets/143229353/561a3c97-5d21-4db7-94b9-2e56d45316d2)
+(https://github.com/martexdd/martexdd/assets/143229353/561a3c97-5d21-4db7-94b9-2e56d45316d2)
 <!--
 **martexdd/martexdd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
