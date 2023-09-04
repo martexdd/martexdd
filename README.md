@@ -8,6 +8,19 @@ que oque falam de mim por ai
 malware em meus arquivos.
 
 
+### Informação 🎈
+Tenho um foco muito grande
+por programação ou seja
+gosto muito pkrl, tenho 
+apenas 17 anos e sou...
+Brazilian / brasileiro
+
+### Contatos 👥
+Nossos discord:
+.gg/xdtools
+.gg/lofy gang
+
+![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)
 
 <!--
 **martexdd/martexdd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
