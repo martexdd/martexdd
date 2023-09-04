@@ -8,6 +8,12 @@ que oque falam de mim por ai <br>
 malware em meus arquivos.
 
 
+### Conquistas👻
+Criador da XD TOOLS <br>
+Derrubei a API do <br>
+DELTA STELER (grabber) <br>
+EX ajudante do DELTA STEALER
+
 ### Informação 🎈
 Tenho um foco muito grande <br>
 por programação ou seja <br>
