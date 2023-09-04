@@ -1,5 +1,4 @@
-
-img src="![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)" width="0px" /
+![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)
 
 
 ### Olá 👋
