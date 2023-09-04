@@ -2,17 +2,17 @@
 
 
 ### Olá 👋
-Olá, amigos quero que saibam 
-que oque falam de mim por ai 
-é fake, não coloco nenhum 
+Olá, amigos quero que saibam <br>
+que oque falam de mim por ai <br>
+é fake, não coloco nenhum <br>
 malware em meus arquivos.
 
 
 ### Informação 🎈
-Tenho um foco muito grande
-por programação ou seja
-gosto muito pkrl, tenho 
-apenas 17 anos e sou...
+Tenho um foco muito grande <br>
+por programação ou seja <br>
+gosto muito pkrl, tenho <br>
+apenas 17 anos e sou... <br>
 Brazilian / brasileiro
 
 ### Contatos 👥
