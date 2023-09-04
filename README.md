@@ -1,5 +1,5 @@
 div align="center"
-img src="https://user-images.githubusercontent.com/143229353/265540131-589e65fd-7f62-4258-83c8-17d7a85a8dfd.gif" width="0px" /
+img src="https://github.com/martexdd/martexdd/issues/1#issue-1880854362" width="0px" /
 /div
 
 ### Olá 👋
