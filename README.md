@@ -1,4 +1,6 @@
-https://raw.githubusercontent.com/Ayhuuu/Ayhuuu/main/img/a.gif
+div align="center"
+img src="https://raw.githubusercontent.com/Ayhuuu/Ayhuuu/main/img/a.gif" width="0px" /
+/div
 
 ### Olá 👋
 Olá, amigos quero que saibam 
