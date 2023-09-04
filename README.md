@@ -17,8 +17,9 @@ Brazilian / brasileiro
 
 ### Contatos 👥
 Nossos discord:
+<br>
 .gg/xdtools
-.gg/lofy gang
+.gg/lofygang
 
 ![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)
 
