@@ -18,7 +18,7 @@ EX ajudante do DELTA STEALER
 Tenho um foco muito grande <br>
 por programação ou seja <br>
 gosto muito pkrl, tenho <br>
-apenas 17 anos e sou... <br>
+apenas 16 anos e sou... <br>
 Brazilian / brasileiro
 
 ### Contatos 👥
