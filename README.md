@@ -22,10 +22,11 @@ Nossos discord:
 <br>
 .gg/lofygang
 
-![github-compressor](https://github.com/martexdd/martexdd/assets/143229353/8ec471b3-8784-4ffa-8430-b7536dfb4926)
+![github-compressor](https://github.com/martexdd/martexdd/assets/143229353/561a3c97-5d21-4db7-94b9-2e56d45316d2)
+
+![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)
 
 
-(https://github.com/martexdd/martexdd/assets/143229353/561a3c97-5d21-4db7-94b9-2e56d45316d2)
 <!--
 **martexdd/martexdd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
