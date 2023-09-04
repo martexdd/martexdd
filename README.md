@@ -1,8 +1,11 @@
-### Hi there 👋
+https://raw.githubusercontent.com/Ayhuuu/Ayhuuu/main/img/a.gif
+
+### Olá 👋
 Olá, amigos quero que saibam 
 que oque falam de mim por ai 
 é fake, não coloco nenhum 
 malware em meus arquivos.
+
 
 
 <!--
