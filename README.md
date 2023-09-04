@@ -1,5 +1,5 @@
 div align="center"
-img src="https://raw.githubusercontent.com/Ayhuuu/Ayhuuu/main/img/a.gif" width="0px" /
+img src="https://user-images.githubusercontent.com/143229353/265540131-589e65fd-7f62-4258-83c8-17d7a85a8dfd.gif" width="0px" /
 /div
 
 ### Olá 👋
