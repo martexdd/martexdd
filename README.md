@@ -22,6 +22,9 @@ Nossos discord:
 <br>
 .gg/lofygang
 
+![github-compressor](https://github.com/martexdd/martexdd/assets/143229353/8ec471b3-8784-4ffa-8430-b7536dfb4926)
+
+
 ![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)
 
 <!--
