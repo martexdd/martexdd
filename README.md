@@ -19,7 +19,7 @@ Tenho um foco muito grande <br>
 por programação ou seja <br>
 gosto muito pkrl, tenho <br>
 apenas 16 anos e sou... <br>
-Brazilian / brasileiro
+brasileiro
 
 ### Contatos 👥
 Nossos discord:
