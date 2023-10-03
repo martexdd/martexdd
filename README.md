@@ -7,6 +7,8 @@ que oque falam de mim por ai <br>
 é fake, não coloco nenhum <br>
 malware em meus arquivos.
 
+![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)
+
 
 ### Conquistas👻
 Criador da XD TOOLS <br>
@@ -14,12 +16,18 @@ Derrubei a API do <br>
 DELTA STELER (grabber) <br>
 EX ajudante do DELTA STEALER
 
+![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)
+
+
 ### Informação 🎈
 Tenho um foco muito grande <br>
 por programação ou seja <br>
 gosto muito pkrl, tenho <br>
 apenas 16 anos e sou... <br>
 brasileiro
+
+![a](https://github.com/martexdd/martexdd/assets/143229353/cf831ace-dee3-41d3-a5d3-a02501b71e91)
+
 
 ### Contatos 👥
 Nossos discord:
