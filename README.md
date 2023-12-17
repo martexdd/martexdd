@@ -13,18 +13,17 @@ malware em meus arquivos.
 ### Conquistas👻
 Criador da XD TOOLS <br>
 Mais de 100 arquivos vendidos <br>
- <br>
-EX ajudante do DELTA STEALER
+Dono de 4 Severs tematica xDTOOLS
 <br>
 <br>
 <br>
 <br>
 ### Informação 🎈
-Tenho um foco muito grande <br>
-por programação ou seja <br>
-gosto muito pkrl, tenho <br>
-apenas 16 anos e sou... <br>
-brasileiro
+Não nos responsabilizamos<br>
+por arquivos repassados <br>
+ajudamos na sua proteção <br>
+e alegria do dia a dia <br>
+com nossos arquivos.
 <br>
 <br>
 <br>
